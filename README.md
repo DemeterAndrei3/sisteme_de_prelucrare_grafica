@@ -1,0 +1,1 @@
+# sisteme_de_prelucrare_grafica
